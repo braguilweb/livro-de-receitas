@@ -1,2 +1,0 @@
-
-jlçkgjasdlçgjlçkgam,nm,.ans.fdmn
